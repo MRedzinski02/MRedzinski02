@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: my uncle was the stunt double for Freddy Kreuger in Nightmare on Elm Street lol
 
-[![Watch the video](https://imgur.com/ijWEgZr.png)](https://www.youtube.com/watch?v=4Ukh9aQBzWc)
+[![Really good song lol](https://imgur.com/ijWEgZr.png)](https://www.youtube.com/watch?v=4Ukh9aQBzWc)
