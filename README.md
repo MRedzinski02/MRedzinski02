@@ -12,3 +12,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: Depart from Whiterun and head east to Ivarstead, where you will be greated by the seven thousand steps of High Hrothgar. Halfway through your journey up the Steps, you will be greeted (or in this case, provoked) by a feral Frost Troll, evade him or vanquish him, the choice is yours. Once your journey up the seven thousands steps, you must deposit one bowl of salt, and one package of dehydrated meats in the chest directly outside the temple entrance. Then, and only then, will you reach me. *Alternative methods to reach me: canvas inbox*
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: my uncle was the stunt double for Freddy Kreuger in Nightmare on Elm Street lol
+
+[![Watch the video](https://i.imgur.com/vKb2F1B.png)](https://www.youtube.com/watch?v=4Ukh9aQBzWc)
