@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 
 ### Credits
 
-**Executive Producer:** Me 🕺 <br><br/>
-**Directed By:** Me 💯 <br><br/>
-**Written By:** Me 👺 <br><br/>
-**Supporting Actors:** Mr. Skellybones as *The Skeleton* <br><br/>
+**🎤 Executive Producer:** Me 🕺 <br><br/>
+**📷 Directed By:** Me 💯 <br><br/>
+**📝 Written By:** Me 👺 <br><br/>
+**👯 Supporting Actors:** Mr. Skellybones as *The Skeleton* 💀 🔥 <br><br/>
